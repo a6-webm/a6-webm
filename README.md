@@ -1,1 +1,1 @@
-Buying gf
+Bought gf 🙏
